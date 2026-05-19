@@ -1,2 +1,2 @@
 # huaning1999.github.oi
-#i-mizzi.com
+# i-mizzi.com
